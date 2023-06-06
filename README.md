@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+📫 reach me: [My LinkedIn](https://www.linkedin.com/in/priyajit-bera-b360b51bb/)
+
 <!--
 **priyajitbera/priyajitbera** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
